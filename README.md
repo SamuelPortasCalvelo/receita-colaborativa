@@ -7,6 +7,7 @@ Ingredientes
 - 1 cebola
 - Aceite de oliva
 - Sal
+- FMSJKFJSIONFIOSJSƑSJFJSO
 
 Preparación
 1. Pelar e cortar as patacas en rodaxas finas.
